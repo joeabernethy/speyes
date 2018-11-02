@@ -2,3 +2,4 @@
 
 practice1
 
+*education forceful triangle soup lester
